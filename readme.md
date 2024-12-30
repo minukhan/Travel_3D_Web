@@ -28,3 +28,5 @@
 - **박성우**: [https://github.com/sungwoo925](https://github.com/sungwoo925)
 
 
+![2024-캡스톤디자인-판넬-(김숙연교수-차기석박성우한민욱)](https://github.com/user-attachments/assets/f3bf663a-8063-41cb-9a0a-3837ac7e5c44)
+
